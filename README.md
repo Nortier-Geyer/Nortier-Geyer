@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Nortier-Geyer
-- 👀 I’m interested in creating all kinds of thing Electronicly related
+- 👀 I’m interested in creating all kinds of things Electronicly related
 - 🌱 I’m currently a BEng E&E undergrad
